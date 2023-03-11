@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I'm Jonny - working for Unity Technologies as a senior software engineer 🎮
+I'm Jonny - working for Sero as a lead software developer 🌍
